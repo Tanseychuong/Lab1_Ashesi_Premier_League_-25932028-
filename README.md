@@ -1,1 +1,2 @@
-# Lab1_Ashesi_Premier_League_-25932028-
+# Name: Chuong Tiutiu Nyang Mayian
+# ID: 25932028
